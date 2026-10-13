@@ -1,3 +1,3 @@
 # Future Person HELLO ! 
-### Q. if i was a live would i like that image ?
+### Q. if i was alive would i like that image ?
 > Here is your answer
