@@ -1,2 +1,3 @@
-# rip
-This repository contains tools designed to mimic how I would respond to a few things, now that I'm gone.
+# Future Person HELLO ! 
+### Q. if i was a live would i like that image ?
+> Here is your answer
